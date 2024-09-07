@@ -1,2 +1,0 @@
-# RCKSTR-DYNAMIC
- 
